@@ -1,0 +1,2 @@
+# Friday
+Have fun!
